@@ -1,0 +1,1 @@
+# Dashboard-Finanzas-tdr-07.04.2026
